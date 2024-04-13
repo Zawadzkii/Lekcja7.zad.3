@@ -1,0 +1,1 @@
+# Lekcja7.zad.3
